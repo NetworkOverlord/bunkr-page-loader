@@ -1,2 +1,0 @@
-# GPG Verified
-# GPG Verified
